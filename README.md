@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pierluigi83
+- 👋 Hi, I’m Pierluigi
 - 👀 I’m interested in all that concerns new technologies
 - 🌱 I’m currently learning nothing specifically
 - 💞️ I’m looking to collaborate on new projects
